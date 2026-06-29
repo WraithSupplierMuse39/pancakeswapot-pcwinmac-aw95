@@ -1,4 +1,4 @@
-# 
+# Profissional pancakeswap trading bot extensões for Mac OS | VIP pancakeswap trading bot extensões for PC Windows. Featuring API de exchange centralizada and análise de momento — optimized for maximum performance.
 
 
 
